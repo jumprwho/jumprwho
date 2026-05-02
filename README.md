@@ -16,3 +16,5 @@
 <p align="center"> ${\textsf{\color{#fba9d7} grew up on minecraft btw. just to flex, pvp was my bread and butter }}$
 <p align="center"> ${\textsf{\color{#fba9d7} my main fandoms are fnaf, iron lung, poppy playtime and dandy's world }}$
 <p align="center"> ${\textsf{\color{#fba9d7} preferably w2i, i'm often offtab }}$
+
+<img width="1280" height="427" alt="Image" src="https://github.com/user-attachments/assets/ca957a3d-4a85-4db4-bd9a-47ce13467eaa" />
