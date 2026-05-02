@@ -8,4 +8,9 @@
 
 add middle photo blah blah lol
 
-<p align="center"> ${\textsf{\color{#fba9d7} DNI: proshippers/darkshippers, minors under 13 + adults over 25 (this isn't really a strict dni, more of a thin ice, if you DO interact, do so with care), racists, homophobes, zoophiles, ableists/people who mock disabilities for fun. full dni/int also in my strawpage }}$
+<p align="center"> ${\textsf{\color{#fba9d7} DNI: proshippers/darkshippers, minors under 13 + adults over 25 (this isn't really a strict dni, more of a thin ice, if you DO }}$
+<p align="center"> ${\textsf{\color{#fba9d7} interact, do so with care), racists, homophobes, zoophiles, ableists/people who mock disabilities for fun. full dni/int in strawpage }}$
+
+[ata](https://malharejayexe.atabook.org/) ⟡ ݁₊ . [straw](https://malhareexelolz.straw.page) ˚. ᵎᵎ [wow i wonder who this man is/nsrs](https://youtooz.com/products/astralspiff) ⊹ ࣪ ˖ [gunslol](https://guns.lol/strwberrypawz)
+
+add 3rd
