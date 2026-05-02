@@ -6,7 +6,7 @@
 <p align="center"> ${\textsf{\color{#fba9d7} jumperwho fictkin. she's literally me }}$
 <p align="center"> ${\textsf{\color{#fba9d7} adult btw }}$
 
-add middle photo blah blah lol
+<img width="2048" height="200" alt="Image" src="https://github.com/user-attachments/assets/8afc10c6-df99-4308-8949-ff214844ec03" />
 
 <p align="center"> ${\textsf{\color{#fba9d7} DNI: proshippers/darkshippers, minors under 13 + adults over 25 (this isn't really a strict dni, more of a thin ice, if you DO }}$
 <p align="center"> ${\textsf{\color{#fba9d7} interact, do so with care), racists, homophobes, zoophiles, ableists/people who mock disabilities for fun. full dni/int in strawpage }}$
