@@ -11,7 +11,10 @@
 <p align="center"> ${\textsf{\color{#fba9d7} DNI: proshippers/darkshippers, minors under 13 + adults over 25 (this isn't really a strict dni, more of a thin ice, if you DO }}$
 <p align="center"> ${\textsf{\color{#fba9d7} interact, do so with care), racists, homophobes, zoophiles, ableists/people who mock disabilities for fun. full dni/int in strawpage }}$
   
-[ata](https://malharejayexe.atabook.org/) ⟡ ݁₊ . [straw](https://malhareexelolz.straw.page) ˚. ᵎᵎ [hi big bro](https://youtooz.com/products/astralspiff) ⊹ ࣪ ˖ [gunslol](https://guns.lol/strwberrypawz)
+<div align="center"> 
+
+
+ [atabook](https://malharejayexe.atabook.org/) ⟡ ݁₊ . [straw](https://malhareexelolz.straw.page) ˚. ᵎᵎ [hi big bro hii](https://youtooz.com/products/astralspiff) ⊹ ࣪ ˖ [gunslol](https://guns.lol/strwberrypawz)
   
 <p align="center"> ${\textsf{\color{#fba9d7} grew up on minecraft btw. just to flex, pvp was my bread and butter }}$
 <p align="center"> ${\textsf{\color{#fba9d7} my main fandoms are fnaf, iron lung, poppy playtime and dandy's world }}$
